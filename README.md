@@ -15,7 +15,7 @@ Send emails to boe@hcpss.org to change the phone ban and sign the petitions, htt
 https://www.change.org/p/challenge-the-all-day-phone-ban-implemented-by-hcpss
 
 # If none of these works...
-If none of these actions yield results, the Student Confederacy will assess the situation within a week to see if HoCo reverses its decision. If the Confederacy is disbanded, it will be the end of our efforts. However, if the policy remains in place, we will extend an invitation to those who wish to participate, while leaving the neutral individuals alone.
+If none of these actions yield results, the Student Confederacy will assess the situation within a week to see if HoCo reverses its decision. If the County takes back the ban, The Confederacy is disbanded, it will be the end of our efforts. However, if the policy remains in place, we will extend an invitation to those who wish to participate, while leaving the neutral individuals alone.
 
 If the policy is upheld, our plan is straightforward: we will organize a learning strike, where all members will refuse to attend school and will actively promote our cause. Once a sufficient number of people join us, we will politely request that Howard County reconsider their decision. If they refuse again, we will take further action by protesting outside schools, holding signs to advocate for our rights and freedoms. We have the right to petition and the right to assembly as well as protest as stated within the constitution. 
 
