@@ -35,3 +35,4 @@ As we move forward, we are dedicated to uniting students and promoting open dial
 
 # How to become a member:
 If you wish to sign up as a member, please sign this document: 
+https://form.typeform.com/to/h65CuMNc
